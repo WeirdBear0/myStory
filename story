@@ -30,3 +30,21 @@ Then I’ll have lots of
 people to talk to, and
 what fun it will be! the
 shepherd boy thought.
+
+So, though he had
+not seen anything that
+even looked like a wolf,
+he ran toward the village
+shouting at the top of his
+voice, “Wolf! Wolf!”
+
+As expected, the
+villagers who heard
+the shepherd boy’s cry
+dropped their work and
+made for the pasture with
+great haste. But when
+they got there they found
+the boy doubled up with
+laughter at the trick he
+had played on them.
